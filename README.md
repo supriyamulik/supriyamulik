@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **supriyamulik99@gmail.com**
 
-- ⚡ Fun fact **"It works on my machine" is my favorite (and scariest) phrase.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
